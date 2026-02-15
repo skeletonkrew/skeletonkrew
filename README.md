@@ -7,7 +7,7 @@
    <a href="https://pronouns.cc/@vampirekey/">he<i>him</i></a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ![https://sewerwolfx.neocities.org/graphics/pixels/crosses/4.gif](https://raw.githubusercontent.com/partypoisoned/partypoisoned/refs/heads/main/4.png) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b>fifteen</b>
 
  
-&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://girlkey.straw.page/">straw</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://mychemicalromance.atabook.org/">ata</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://www.last.fm/user/weezerus">lastfm</a> &nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://selfishlove.straw.page/">straw</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://mychemicalromance.atabook.org/">ata</a> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <a href="https://www.last.fm/user/weezerus">lastfm</a> &nbsp;&nbsp;&nbsp;&nbsp;
 <br>
 
 
