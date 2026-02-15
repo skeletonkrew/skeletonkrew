@@ -1,5 +1,5 @@
 <div align='center'> 
- <img src='lsfunes.jpeg' title='dan and phil'
+ <img src='lsfunes.jpeg' title='ls dunes'
 
  <br>
  
