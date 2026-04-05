@@ -1,5 +1,10 @@
 <div align='center'> 
- <img src='wolf.png' title='blood'
+<i>so long, avalon</i>
+<br>
+
+<br>
+<div align='center'>
+<img src='wolf.png' title='blood'
 
  <br>
  
