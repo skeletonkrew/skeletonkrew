@@ -4,7 +4,7 @@
 
 <br>
 <div align='center'>
-<img src='https://files.catbox.moe/cgh7aq.jpg' title='blood'
+<img src='https://files.catbox.moe/gnp945.png' title='blood'
 
  <br>
  
