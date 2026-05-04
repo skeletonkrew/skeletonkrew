@@ -1,5 +1,5 @@
 <div align='center'> 
-<i>so long, avalon</i>
+<i>war all the time</i>
 <br>
 
 <br>
