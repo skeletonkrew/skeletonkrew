@@ -4,7 +4,7 @@
 
 <br>
 <div align='center'>
-<img src='https://sewerwolfx.neocities.org/graphics/graphics/gifs/3yellow/9.gif' title='blood'
+<img src='https://files.catbox.moe/y6bd6y.png' title='made by me'
 <br>
 
 &nbsp;
