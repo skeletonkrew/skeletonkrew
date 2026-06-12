@@ -1,5 +1,5 @@
 <div align='center'>
-<img src='https://files.catbox.moe/y6bd6y.png' title='made by me'
+<img src='https://sewerwolfx.neocities.org/graphics/graphics/gifs/1red/11.gif' title='hand'
 <br>
 
 &nbsp;
