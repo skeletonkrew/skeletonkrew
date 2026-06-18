@@ -2,7 +2,7 @@
  <i>letting love find a way</i>
  <br>
  <br>
-<img src='https://sewerwolfx.neocities.org/graphics/graphics/pngs/1red/21.gif' title='gross'
+<img src='https://files.catbox.moe/976r50.gif' title='gross'
 <br>
 
 &nbsp;
