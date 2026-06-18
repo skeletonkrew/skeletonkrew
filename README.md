@@ -1,8 +1,5 @@
 <div align='center'>
- <i>letting love find a way</i>
- <br>
- <br>
-<img src='https://files.catbox.moe/976r50.gif' title='gross'
+<img src='fusegif.gif' title='gross'
 <br>
 
 &nbsp;
